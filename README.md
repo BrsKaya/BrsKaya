@@ -1,5 +1,5 @@
 # 💫 About Me:
-🖥️ I am a 2nd year Computer Engineering student with a passion for self-improvement.<br>✉️ Add me on LinkedIn :)
+🖥️ I am a 3rd year Computer Engineering student with a passion for self-improvement.<br>✉️ Add me on LinkedIn :)
 
 
 ## 🌐 Socials:
